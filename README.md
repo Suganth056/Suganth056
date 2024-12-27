@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ivm Currently working 
+I'm Currently Learning 
 
 
 ## 🌐 Socials:
